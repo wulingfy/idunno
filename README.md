@@ -2,7 +2,7 @@
 
 - Lòng Anh by Hàn Mặc Tử
 
-- Truyện Kiều (150 sentences) by Nguyễn Du
+- Truyện Kiều (150 lines of poetry) by Nguyễn Du
 
 - Không Chồng Mà Chửa by Hồ Xuân Hương
 
